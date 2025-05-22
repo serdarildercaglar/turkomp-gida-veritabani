@@ -1,0 +1,1 @@
+# turkomp-g-da-veritabani
